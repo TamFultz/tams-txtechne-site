@@ -1,0 +1,1 @@
+This website is devote to promoting and providing information on contemporary Greek art, artists, galleries, and exhibitions. 
